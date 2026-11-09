@@ -1,1 +1,0 @@
-# alexjuly7online.github.io
